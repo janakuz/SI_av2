@@ -3,4 +3,4 @@ New info
 
 How to use
 
-add more info
+add extra details more info
